@@ -2,7 +2,7 @@
 - 👀 I’m interested in football.
 - 🌱 I’m currently learning how to be a graduate student😂
 - 📫 How to reach me :1012194891@qq.com
-- Welcome to vist my site: soulmaterui7.com
+- Welcome to vist my site: [SoulmateRui7](http://47.93.252.206/)
 
 <!---
 Soulmate7/Soulmate7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
