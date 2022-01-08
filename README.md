@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Soulmate7, a student in CUC.
 - 👀 I’m interested in football.
-- 🌱 I’m currently learning how to be a graduate student😂
-- 📫 How to reach me :1012194891@qq.com
+- 🌱 I’m currently learning how to be a graduate student
+- 📫 How to reach me :cuc_zengrui@163.com
 - Welcome to vist my site: [SoulmateRui7](http://47.93.252.206/)
 
 <!---
